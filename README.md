@@ -1,5 +1,5 @@
 ### Hi there 👋
-
+I'm Sunny and feel glad to study this course. I hope I can get a good grade in this course.
 <!--
 **Sixthlengjai/Sixthlengjai** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
